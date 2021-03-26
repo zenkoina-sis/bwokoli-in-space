@@ -1,2 +1,0 @@
-# bwokoli-in-space
-awwwesome!!
